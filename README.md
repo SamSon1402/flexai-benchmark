@@ -116,4 +116,4 @@ This project is proprietary and confidential. © 2025 FlexAI Inc. All rights res
 
 ---
 
-For questions or support, please contact Sameerm140299@gmail.com
+For questions or support, please contact Sameerm1421999@gmail.com
